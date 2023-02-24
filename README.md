@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Mayur Kumar Sharma
 - 👀 I’m interested making life easier with codes
-- 🌱 I’m currently learning Data Science
+- 🌱 I’m OPEN TO WORK in Data Scientist role
 - 💞️ I’m looking to collaborate on top skilled programmers
 - 📫 How to reach me, just ping on whatsapp or use mail id i.e. mayur4everyone@gmail.com
 
